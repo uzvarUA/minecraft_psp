@@ -1,1 +1,1 @@
-# minecraft_psp
+# minecraft_psp - офіційна група
